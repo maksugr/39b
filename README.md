@@ -1,0 +1,1 @@
+> He suddenly felt nothing, or rather Nothing, a pre-tornadic stillness of zero sensation, as if he were the very space he occupied.
